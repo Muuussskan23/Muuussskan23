@@ -37,4 +37,3 @@
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
-this is the readme i created now how to add this to my page to change its layout
