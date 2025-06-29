@@ -10,7 +10,7 @@
 
 - 💼 Currently adding new tools to my developer toolbox!
 - 📫 Connect me through - [meharunnisashaik2312@gmail.com](mailto:meharunnisashaik2312@gmail.com)
-- 📄 Check out my Resume = [Resume](https://drive.google.com/file/d/1LLCJz2ShRaL_8ngiYUC_666rCf7oshcT/view?usp=drive_link) 
+- 📄 Check out my Resume - [Resume](https://drive.google.com/file/d/1LLCJz2ShRaL_8ngiYUC_666rCf7oshcT/view?usp=drive_link) 
 
 </div>
 
